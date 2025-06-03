@@ -33,8 +33,17 @@
 
   Ответ:
 
-![image](https://github.com/user-attachments/assets/76f372c4-544b-4237-a130-3c3d5b5c464e)
-![image](https://github.com/user-attachments/assets/a7d4c38a-1898-4dfd-a0bd-5a27cbf0de47)
+![image](https://github.com/user-attachments/assets/b00e94e6-8f1b-4ba1-bf56-c06ecf52aa18)
+![image](https://github.com/user-attachments/assets/350c17d3-c4fb-4c42-aa8f-fdf3f0e59005)
+![image](https://github.com/user-attachments/assets/ec16ffff-2020-43ce-aecb-75ef4a68c598)
+![image](https://github.com/user-attachments/assets/060e2cf6-6786-4bd1-9bb1-c10ae7e379b5)  
+
+  
+
+
+
+
+
 
 
 ### Задание 2
